@@ -1,0 +1,1 @@
+# baskara-langit-pernah-berkata
